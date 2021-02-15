@@ -1,4 +1,4 @@
-                                   Artsiom Y. - Front-end Developer 
+                                                    Artsiom Y. - Front-end Developer 
  
 ### CANDIDATE’S OVERVIEW
 
